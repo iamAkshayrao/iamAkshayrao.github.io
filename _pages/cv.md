@@ -11,12 +11,26 @@ redirect_from:
 
 Education
 ======
-* B.E. in Electronics & Communications Engineering, BMSCE, 2021
-* P.U.C. in Science, PACE Pre-University, 2017
-* S.S.L.C., Vikasa High School, 2015
+* 2017 - 2021: B.E. in Electronics & Communications Engineering
+  * BMS College of Engineering, Bangalore, India
+  * CGPA 8.8/10.0
+
+* 2015 - 2017: Pre-University Education in Science
+  * PACE Pre-University, Shimoga, India
+  * Studied Physics, Chemistry, Math, Biology
+  * 97.33% (P.U.C.)
+
+* 2010 - 2015: High School
+  * Vikasa High School, Shimoga, India 
+  * 98.24% (S.S.L.C.)
 
 Work experience
 ======
-* 2021 - Present: Associate Software Engineer | Company - Kaleyra
-* 2021          : Intern | Company - Kaleyra
+* 2021 - Present: Associate Software Engineer
+  * Company Kaleyra
+
+* Summer 2021: Intern
+  * Company Kaleyra
+
+
  
