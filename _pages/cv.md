@@ -13,7 +13,7 @@ Education
 ======
 * 2017 - 2021: B.E. in Electronics & Communications Engineering
   * BMS College of Engineering, Bangalore, India
-  * CGPA 8.8/10.0
+  * Grade - Distinction
 
 * 2015 - 2017: Pre-University Education in Science
   * PACE Pre-University, Shimoga, India
