@@ -93,7 +93,7 @@ analytics:
 author:
   name             : "Akshay"
   avatar           : "IMG_3521-02.jpeg"
-  bio              : "I don't know who I am yet"
+  bio              : #"I don't know who I am yet"
   location         : "Bangalore, India"
   email            : "iamakshayrao44@gmail.com"
   github           : "iamAkshayrao"
