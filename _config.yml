@@ -93,7 +93,7 @@ analytics:
 author:
   name             : "Akshay"
   avatar           : "IMG_3521-02.jpeg"
-  bio              : "No-Thing"
+  bio              :  #"No-Thing"
   location         : "Every-Where"
   email            : "iamakshayrao44@gmail.com"
   github           : "iamAkshayrao"
