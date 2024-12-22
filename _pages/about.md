@@ -8,6 +8,31 @@ redirect_from:
   - /about.html
 ---
 
+• Currently Full Stack Software Engineer with 3 years in the telecom domain building B2B SaaS/CPaaS products. 
+
+• Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. 
+• During my time here, I have exposure to & worked on perception, prediction & control problems  related to self-balancing bots, self-driving vehicles, quadcopters, humanoid robot, swarm robotics 
+
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
+
+•Personality: Analytical, High achiever, Independent & Self-Directed personality with hard-work based ethic. Works independently. Agnostic of tools, tech etc. 
+
+---------------------------------------------------------------------
+Most recent Co-curricular & Scholastic Achievements 
+
+•Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
+
+• Under Top-10/1000+ teams, e-Yantra National Level Robotics Competition conducted by ERTS Lab, IIT Bombay, MHRD, 2019-20
+
+• Secured 1st place/100+ teams, Mathworks mini-drone competition conducted by Mathworks, 2019
+
+• Under Top-15/200+ teams, e-Yantra National Level Robotics Competition conducted by ERTS Lab, IIT Bombay, MHRD, 2018-19
+
+• Prime Minister’s Scholarship, for children of ex-servicemen from KSB India for academic achievement in class 12 & B.E, 2017-20
+
+• Under Top-15/ > 0.5 million, class 12 Karnataka board exam. KCET under top 0.6%/ > 0.1 million students, 2017
+
+• Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
 
 An analytical and introspective individual with a strong focus on personal growth and intellectual development. Possesses a logical approach to problem-solving, characterized by a consistent ability to identify patterns, tackle complex problems, and address challenges through structured, strategic methods. This approach is supported by demonstrated strengths in mathematical and spatial reasoning, contributing to effectiveness in scenarios requiring precise reasoning, abstract thinking, and a thorough understanding of both technical and conceptual issues.
 
