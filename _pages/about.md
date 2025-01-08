@@ -15,7 +15,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
 
-•Personality: Analytical, High achiever, Independent & Self-Directed personality with hard-work based ethic. Works independently. Agnostic of tools, tech etc. Avid reader. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+•Personality: I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
