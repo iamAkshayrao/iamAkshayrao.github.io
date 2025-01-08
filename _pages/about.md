@@ -21,10 +21,16 @@ redirect_from:
 Most recent Co-curricular & Scholastic Achievements 
 
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
+
 • Under Top-10/1000+ teams, e-Yantra National Level Robotics Competition conducted by ERTS Lab, IIT Bombay, MHRD, 2019-20
+
 • Secured 1st place/100+ teams, Mathworks mini-drone competition conducted by Mathworks, 2019
+
 • Under Top-15/200+ teams, e-Yantra National Level Robotics Competition conducted by ERTS Lab, IIT Bombay, MHRD, 2018-19
+
 • Prime Minister’s Scholarship, for children of ex-servicemen from KSB India for academic achievement in class 12 & B.E, 2017-20
+
 • Under Top-15/ > 0.5 million, class 12 Karnataka board exam. KCET under top 0.6%/ > 0.1 million students, 2017
+
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
 
