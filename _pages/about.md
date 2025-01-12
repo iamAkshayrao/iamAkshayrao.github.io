@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
 
-•Personality: High achiever, analytical, self-directed personality who follows individualist philosophy. I am academically inclined from the time I joined school. I come from academically inclined family background aswell where most of my cousins are engineers, doctors, scientists, BFSI sector and agriculture. Most of my life has been spent in academics, sports and travel. I self study many subjects just for sake of knowing more, discovering and inventing something new. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+•Personality: High achiever, analytical, self-directed personality who follows individualist philosophy. I am academically inclined from the time I joined school. I come from academically inclined family background aswell where most people are engineers, doctors, scientists, BFSI sector and agriculture. Most of my life has been spent in academics, sports and travel. I self study many subjects just for sake of knowing more, discovering and inventing something new. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
