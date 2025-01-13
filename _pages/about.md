@@ -10,13 +10,13 @@ redirect_from:
 
 • Currently Full Stack Software Engineer with 3 years in the telecom domain building B2B SaaS/CPaaS products. I have exposure to all tech stack, domains, roles in Computer Science & Electronics Industry. I am agnostic of tech stack etc. I find working in roles that that involve application of lot of math and science interesting
 
-• Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. BMSCE is one of the top 100 institute in the country where high achievers in school end up in and has went on to become CXO's, founders, VPs, employees in top tech companies of the world etc
+• Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. BMSCE is one of the top 100 institute in the country where high achievers in school end up in.
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bots, self-driving vehicles, quadcopters, humanoid robot, swarm robotics. 
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
 
-•Personality: High achiever, analytical, self-directed personality who follows individualist philosophy. I am academically inclined from the time I joined school. I come from academically inclined family background aswell where most people are engineers, doctors, scientists, BFSI sector and agriculture. Most of my life has been spent in academics, sports and travel. I self study many subjects just for sake of knowing more, discovering and inventing something new. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+•Personality: High achiever, analytical, self-directed personality who follows individualist philosophy. I self study many subjects just for the sake of knowing more, discovering and inventing something new. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
