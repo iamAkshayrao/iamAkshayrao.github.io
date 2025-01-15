@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
 
-• I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+• Personality: High achiever, Independent personality. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
