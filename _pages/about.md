@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
 
-•Personality: High achiever, analytical, self-directed personality who follows individualist philosophy. I self study many subjects just for the sake of knowing more, discovering and inventing something new. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+• I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
