@@ -12,11 +12,11 @@ redirect_from:
 
 • Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. BMSCE is one of the top 100 institute in the country where high achievers in school end up in.
 
-• During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bots, self-driving vehicles, quadcopters, humanoid robot, swarm robotics. 
+• During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore topics in all of the academic disciplines just out of curiosity!. I have exposure to most of them.
 
-• Personality: High achiever, Independent personality. I like contributing to the problem statements that are in the academic disciplines that I have persued and related domains
+• Personality: High achiever, Independent personality. Whatever I persued till now were due to the internal motivation and interest that I had in that point in time. I want to contributing to the problem statements that are in the academic disciplines that I have persued and related domains. 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
