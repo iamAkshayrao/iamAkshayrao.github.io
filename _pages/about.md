@@ -15,7 +15,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-• Personality: High achiever, Independent personality. Whatever I persued till now were due to the internal motivation and interest that I had in that point in time. I want to contribute to the problem statements that are in the academic disciplines that I have persued and related domains. 
+• Personality: High achiever, Independent personality.
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
