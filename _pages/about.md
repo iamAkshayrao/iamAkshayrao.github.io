@@ -9,13 +9,14 @@ redirect_from:
 ---
 
 • Currently Full Stack Software Engineer with 3 years in the telecom domain building B2B SaaS/CPaaS products. I have exposure to all tech stack, domains, roles in Computer Science & Electronics Industry. I am agnostic of tech stack etc.
+
 • Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. BMSCE is one of the top 100 institute in the country where high achievers in school end up in.
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-• Personality: High achiever, Independent personality.
+• Personality: High achiever, Independent personality, Logical and no nonsense person.
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
