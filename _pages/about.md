@@ -16,8 +16,6 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-• Personality: High achiever, Independent personality, Logical, Self-motivated, Self-aware and no nonsense person.
-
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
