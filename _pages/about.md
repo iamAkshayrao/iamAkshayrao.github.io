@@ -37,9 +37,9 @@ Most recent Co-curricular & Scholastic Achievements
 
 Extra-curricular Activities & Achievements 
 
-• Played Volleyball in high school and went till zonal and taluk level. Apart from these I played chess, kabbadi, kho-kho, badminton 🏸, cricket,throw ball
+• Played Volleyball 🏐 in high school and went till zonal and taluk level. Apart from these I played chess, kabbadi, kho-kho, badminton 🏸, cricket,throw ball
 
-• Coming to mobile and desktop gaming I have played Call of duty, Far Cry 3, FIFA , NFS Most Wanted, Clash Royale, Clash of Clans , PUBG. My preference is strategy and battle royale games
+• Coming to mobile and desktop gaming 🎮 I have played Call of duty, Far Cry 3, FIFA , NFS Most Wanted, Clash Royale, Clash of Clans , PUBG. My preference is strategy and battle royale games
 
 • When I was in primary school, I enrolled myself in to learning Abacus 🧮 at GNELS Abacus https://generationnextedu.com/. I graduated from their program. I did participate at state level and national-level competition. Even today I use visual abacus for most of the calculations I do in my daily life
 
