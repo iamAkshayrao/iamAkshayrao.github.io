@@ -44,3 +44,5 @@ Extra-curricular Activities & Achievements
 • In school I had joined the RSS Ghosh https://youtu.be/cLrr2Tbj5RY?si=Ms63tD-4Nt0pqWot. I was a side drummer 🥁 and I choose it over all the other instruments.
 
 • Apart from these I had active participation in creative arts 🎨 . From my experience and analyzing others I have good spatial intelligence/reasoning. The reson being that the student's drawings and paintings were out of proportions in my class in school. I don't know if this is something that can be learnt or taught. I liked getting involved in art related activities and have been doing that from the time I joined school.
+
+• Apart from I have travelled to majority of the significant places in southern part of India 🇮🇳 
