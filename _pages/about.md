@@ -35,6 +35,8 @@ Most recent Co-curricular & Scholastic Achievements
 
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
 
+---------------------------------------------------------------------
+
 Extra-curricular Activities & Achievements 
 
 • Played Volleyball 🏐 in high school and went till zonal and taluk level. Apart from these I played chess, kabbadi, kho-kho, badminton 🏸, cricket,throw ball
