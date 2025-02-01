@@ -37,7 +37,7 @@ Most recent Co-curricular & Scholastic Achievements
 
 Extra-curricular Activities & Achievements 
 
-• Played Volleyball in high school and went till zonal and taluk level. Apart from these I played chess, Kabbadi, kho-kho, Badminton 🏸, cricket,throw ball
+• Played Volleyball in high school and went till zonal and taluk level. Apart from these I played chess, kabbadi, kho-kho, badminton 🏸, cricket,throw ball
 
 • Coming to mobile and desktop gaming I have played Call of duty, Far Cry 3, FIFA , NFS Most Wanted, Clash Royale, Clash of Clans , PUBG. I like strategy and battle royale games
 
