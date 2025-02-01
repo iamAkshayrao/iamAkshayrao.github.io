@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-Personality: High Achiever, Analytical, Independent Personality. Logic, data and fact based decision making. Knows and has experience in what it takes to get good at something. It can be some sport activity, academic persuit, physical fitness etc. My track record is testament for this.
+Personality: High Achiever, Analytical, Independent Personality. Logic, data and fact based decision making. Knows and has experience in what it takes to get good at something. It can be some sport activity, academic persuit, physical fitness etc. My track record is testament for this. Academically inclined from young age without any external expectations. Whatever I picked, I tried to get really good at it!
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
@@ -35,3 +35,9 @@ Most recent Co-curricular & Scholastic Achievements
 
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
 
+Extra-curricular Activities & Achievements 
+
+• Played Volleyball in high school and went till zonal and taluk level
+• When I was in primary school, I enrolled myself in to learning Abacus 🧮 at GNELS Abacus https://generationnextedu.com/. I graduated from their program. I did participate at state level and national-level competition. Even today I use visual abacus for most of the calculations I do in my daily life
+• In school I had joined the RSS Ghosh https://youtu.be/cLrr2Tbj5RY?si=Ms63tD-4Nt0pqWot. I was a side drummer 🥁 and I choose it over all the other instruments.
+• Apart from these I had active participation in creative arts 🎨 . From my experience and analyzing others I have good spatial intelligence/reasoning. The reson being that the student's drawings and paintings were out of proportions in my class in school. I don't know if this is something that can be learnt or taught. I liked getting involved in art related activities and have been doing that from the time I joined school.
