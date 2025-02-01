@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-Personality: High Achiever, Analytical, Independent Personality. Logic, data and fact based decision making. Knows and has experience in what it takes to achieve "mastery" in something. I have been through all the phases of Mastery (Read the book Mastery by Robert Greene).It can be some sport activity, academic persuit, physical fitness etc. My track record is testament for this. Academically inclined from young age without any external expectations. Whatever I picked, I tried to get really good at it!
+Personality: High Achiever, Analytical, Independent Personality. Logic, data and fact based decision making. Knows and has experience in what it takes to achieve "mastery" in something .It can be some sport activity, academic persuit, physical fitness etc. My track record is testament for this. Academically inclined from young age without any external expectations. Whatever I picked, I tried to get really good at it!
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
@@ -39,7 +39,7 @@ Extra-curricular Activities & Achievements
 
 • Played Volleyball in high school and went till zonal and taluk level. Apart from these I played chess, kabbadi, kho-kho, badminton 🏸, cricket,throw ball
 
-• Coming to mobile and desktop gaming I have played Call of duty, Far Cry 3, FIFA , NFS Most Wanted, Clash Royale, Clash of Clans , PUBG. I like strategy and battle royale games
+• Coming to mobile and desktop gaming I have played Call of duty, Far Cry 3, FIFA , NFS Most Wanted, Clash Royale, Clash of Clans , PUBG. My preference is strategy and battle royale games
 
 • When I was in primary school, I enrolled myself in to learning Abacus 🧮 at GNELS Abacus https://generationnextedu.com/. I graduated from their program. I did participate at state level and national-level competition. Even today I use visual abacus for most of the calculations I do in my daily life
 
