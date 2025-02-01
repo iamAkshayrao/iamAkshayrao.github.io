@@ -41,8 +41,8 @@ Extra-curricular Activities & Achievements
 
 • When I was in primary school, I enrolled myself in to learning Abacus 🧮 at GNELS Abacus https://generationnextedu.com/. I graduated from their program. I did participate at state level and national-level competition. Even today I use visual abacus for most of the calculations I do in my daily life
 
-• In school I had joined the RSS Ghosh https://youtu.be/cLrr2Tbj5RY?si=Ms63tD-4Nt0pqWot. I was a side drummer 🥁 and I choose it over all the other instruments.
+• In school I had joined the RSS Ghosh https://youtu.be/cLrr2Tbj5RY?si=Ms63tD-4Nt0pqWot. I was a side drummer 🥁 and I choose it over all the other instruments. I have participated in many Republic day and Independence day parade. I persued my primary and high school education at Vikasa High School,Shimoga. It was fun!
 
-• Apart from these I had active participation in creative arts 🎨 . From my experience and analyzing others I have good spatial intelligence/reasoning. The reson being that the student's drawings and paintings were out of proportions in my class in school. I don't know if this is something that can be learnt or taught. I liked getting involved in art related activities and have been doing that from the time I joined school.
+• Apart from these I had active participation in creative arts 🎨 . From my experience and analyzing others I have good spatial intelligence/reasoning. The reason being that the student's drawings and paintings were out of proportions in my class in school. I don't know if this is something that can be learnt or taught. I liked getting involved in art related activities and have been doing that from the time I joined school.
 
-• Apart from I have travelled to majority of the significant places in southern part of India 🇮🇳 
+• Apart from these I have travelled to majority of the significant places in southern part of India 🇮🇳. Still lots of places to explore in India itself!
