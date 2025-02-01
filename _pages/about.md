@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
 
-Personality: High Achiever, Analytical, Independent Personality. Logic, data and fact based decision making. Knows and has experience in what it takes to achieve "mastery" in something .It can be some sport activity, academic persuit, physical fitness etc. My track record is testament for this. Academically inclined from young age without any external expectations. Whatever I picked, I tried to get really good at it!
+Personality: High Achiever, Analytical, Independent Personality. 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
