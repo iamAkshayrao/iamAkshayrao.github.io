@@ -37,7 +37,7 @@ Most recent Co-curricular & Scholastic Achievements
 
 Extra-curricular Activities & Achievements 
 
-• Played Volleyball in high school and went till zonal and taluk level
+• Played Volleyball in high school and went till zonal and taluk level. Apart from these I played chess, Kabbadi, kho-kho, Badminton 🏸, cricket,throw ball. 
 
 • When I was in primary school, I enrolled myself in to learning Abacus 🧮 at GNELS Abacus https://generationnextedu.com/. I graduated from their program. I did participate at state level and national-level competition. Even today I use visual abacus for most of the calculations I do in my daily life
 
