@@ -14,9 +14,9 @@ redirect_from:
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them.
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them. 
 
-Personality: High Achiever, Analytical, Independent Personality, Individualist. 
+Personality: High Achiever, Analytical, Independent Personality, Individualist. I am a person who knows what it takes to achieve mastery!. Friends and colleagues often describe my communication style as precise and exact, reflecting my analytical and structured approach to problem-solving
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
