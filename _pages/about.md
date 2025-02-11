@@ -18,8 +18,6 @@ redirect_from:
 
 Personality: High Achiever, Analytical, Self-directed, Individualist. I am a person who knows what it takes to achieve mastery!. Friends and colleagues often describe my communication style as precise and exact, reflecting my analytical and structured approach to problem-solving. 
 
-Here is an article that I wrote and which I can relate to https://medium.com/@iamakshayrao44/changes-in-brain-after-preparing-for-competitive-exams-70b26c01b25e
-
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
