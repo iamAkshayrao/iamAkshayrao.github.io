@@ -34,3 +34,9 @@ Most recent Co-curricular & Scholastic Achievements
 • Under Top-15/ > 0.5 million, class 12 Karnataka board exam. KCET under top 0.6%/ > 0.1 million students, 2017
 
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
+
+---------------------------------------------------------------------
+Most recent Extra curricular Activities & Achievements 
+
+• Trained in Abacus 🧮. Participant at National and State level competition 
+• Played Volleyball in high school at Zonal & Taluk level
