@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them. 
 
-Personality: High Achiever, Analytical, Self-directed, Individualist!. Friends and colleagues often describe my communication style as precise and exact, reflecting my analytical and structured approach to problem-solving. 
+Personality: High Achiever, Analytical, Self-directed, Individualist, entrepreneurial personality!. Friends and colleagues often describe my communication style as precise and exact, reflecting my analytical and structured approach to problem-solving. Avid reader therfore be careful!🧐 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
