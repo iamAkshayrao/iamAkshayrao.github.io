@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Apart from these, I explore other academic disciplines. I have exposure to most of them. 
 
-I am a highly logical, independent, and analytical thinker who thrives on efficiency, mastery, and long-term strategic planning. I prioritize intellectual depth, structured decision-making, and meritocracy, constantly questioning inefficiencies and challenging conventional norms. My approach to life is rooted in objective reasoning, personal responsibility, and continuous self-improvement, as I strive to become an expert across multiple disciplines. I value precision in communication, deep analysis over superficial understanding, and rationality over emotion in decision-making. My mindset is driven by a commitment to excellence, strategic thinking, and optimizing every aspect of life to achieve peak performance.  
+I am a highly logical, independent, and analytical thinker who thrives on efficiency, mastery, and long-term strategic planning. I prioritize intellectual depth, structured decision-making, and meritocracy, constantly questioning inefficiencies and challenging conventional norms. My approach to life is rooted in objective reasoning, personal responsibility, and continuous self-improvement. I value precision in communication, deep analysis over superficial understanding, and rationality over emotion in decision-making. My mindset is driven by a commitment to excellence, strategic thinking, and optimizing every aspect of life to achieve peak performance.  
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
