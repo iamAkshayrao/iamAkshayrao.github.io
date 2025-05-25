@@ -18,7 +18,7 @@ redirect_from:
 
 I am a highly logical, independent, and analytical thinker who thrives on efficiency, mastery, and long-term strategic planning. I prioritize intellectual depth, structured decision-making, and meritocracy, constantly questioning inefficiencies and challenging conventional norms. My approach to life is rooted in objective reasoning, personal responsibility, and continuous self-improvement. I value precision in communication, deep analysis over superficial understanding, and rationality over emotion in decision-making. My mindset is driven by a commitment to excellence, strategic thinking, and optimizing every aspect of life to achieve peak performance.  
 
-I am constantly in search of following jobs: Back end software engineer
+I am constantly in search of following jobs: Back end software engineer,
 Full Stack software developer,
 Front-End software developer,
 Firmware Engineer, 
