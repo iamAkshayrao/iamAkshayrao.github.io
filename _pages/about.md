@@ -22,6 +22,8 @@ Avid reader. I study other subjects through self study. I have exposure to most 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
+These are the testament for my discipline, dedication, memory, processing speed, competence, consistency, resilience, hard/smart work, internal motivation, high achiever mindset
+
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
 
 • Under Top-10/1000+ teams, e-Yantra National Level Robotics Competition conducted by ERTS Lab, IIT Bombay, MHRD, 2019-20
@@ -36,8 +38,11 @@ Most recent Co-curricular & Scholastic Achievements
 
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
 
+
 ---------------------------------------------------------------------
 Most recent Extra curricular Activities & Achievements 
+
+These are the testament for my involvement in activities other than academics 
 
 • Trained in Abacus 🧮. Participant at National and State level competition 
 • Played Volleyball in high school at Zonal & Taluk level
