@@ -22,7 +22,7 @@ Avid reader. I study other subjects through self study. I have exposure to most 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
-These are the testament for my discipline, dedication, memory, processing speed, competence, consistency, resilience, hard/smart work, internal motivation, high achiever mindset
+These are the testament for my discipline, dedication, memory, processing speed, competence, consistency, resilience, hard/smart work, internal motivation, high achiever mindset. I know what it takes to reach mastery. I have been through the process.
 
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
 
@@ -37,7 +37,6 @@ These are the testament for my discipline, dedication, memory, processing speed,
 • Under Top-15/ > 0.5 million, class 12 Karnataka board exam. KCET under top 0.6%/ > 0.1 million students, 2017
 
 • Under Top-15/ > 0.5 million, class 10 Karnataka board exam. 100/100 in Math, Science, Social Sciences. Top 5 throughout school, 2015
-
 
 ---------------------------------------------------------------------
 Most recent Extra curricular Activities & Achievements 
