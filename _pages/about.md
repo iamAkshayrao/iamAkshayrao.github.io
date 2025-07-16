@@ -22,7 +22,7 @@ Avid reader. I study other subjects through self study. I have exposure to most 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
-These are the testament for my high achiever mindset. I know what it takes to reach mastery. I have been through the process.
+These are the testament for my high achiever mindset. I know what it takes to reach mastery.
 
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
 
