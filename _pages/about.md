@@ -16,8 +16,6 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them. 
 
-I am highly logical and rational. Self motivated with perfectionistic tendencies. Polymath and scientific mindset with strategic and tactical thinking. I value truth seeking, anti-herd mentality and self sufficiency. I am detached but observant, resilient and focused, low tolerance for irrationality. Work/problem solving style: System builder, deep diver > surface scan, reverse engineering & modelling. 
-
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
