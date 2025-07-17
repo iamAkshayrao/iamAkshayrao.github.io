@@ -14,15 +14,15 @@ redirect_from:
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. 
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them. 
 
-Avid reader. I study other subjects through self study. I have exposure to most of them.
+I am highly logical and rational. Self motivated with perfectionistic tendencies. Polymath and scientific mindset with strategic and tactical thinking. I value truth seeking, anti-herd mentality and self sufficiency. I am detached but observant, resilient and focused, low tolerance for irrationality. Work/problem solving style: System builder, deep diver > surface scan, reverse engineering & modelling. 
 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
-These are the testament for my high achiever mindset. I know what it takes to reach mastery.
+These are the testament for my high achiever peronality. I know what it takes to reach mastery.
 
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
 
