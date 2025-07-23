@@ -19,7 +19,6 @@ redirect_from:
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
-These are the testament for my high achiever peronality. I know what it takes to reach mastery.
 
 •Under Top-5/100+ teams, declared champions in the Scilab Toolbox Hackathon conducted by FOSSEE, IIT Bombay, 2020
 
@@ -37,8 +36,6 @@ These are the testament for my high achiever peronality. I know what it takes to
 
 ---------------------------------------------------------------------
 Most recent Extra curricular Activities & Achievements 
-
-These are the testament for my involvement in activities other than academics 
 
 • Trained in Abacus 🧮. Participant at National and State level competition 
 • Played Volleyball in high school at Zonal & Taluk level
