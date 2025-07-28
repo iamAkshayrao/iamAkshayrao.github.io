@@ -16,8 +16,6 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them.
 
-I am high achiever personality. I value my and other's time. I am liberal. I value the statement that there are still lot of things yet to be discovered and invented. I direct my reources towards this and I am not interested in other things apart from this. Please use direct communication style if you want to communicate with me. 
-
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
