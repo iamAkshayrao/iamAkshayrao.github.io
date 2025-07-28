@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them.
 
-Please use direct communication style if you want to communicate with me. 
+I am high achiever personality. I value my and other's time. Please use direct communication style if you want to communicate with me. 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
