@@ -40,7 +40,7 @@ Most recent Extra curricular Activities & Achievements
 • Trained in Abacus 🧮. Participant at National and State level competition 
 • Played Volleyball in high school at Zonal & Taluk level
 
-
+--------------------------------------------------------------------
 • High achiever, analytical & internally motivated personality. 
 
 • I am avid reader because according to me better decisions, analysis can be made with more data.
@@ -50,3 +50,5 @@ Most recent Extra curricular Activities & Achievements
 • I consider myself one of the best out there and I have spent my time with the top 1% therefore I know what best looks like what it takes to get there
 
 • I value the statement that mistakes happen some times. This happens when we don't have access to correct data at the correct point in time. 
+
+• I dislike the fact that we forget what we don't use on a daily basis and have to put lot of effort to remember it again. 
