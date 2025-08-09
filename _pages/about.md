@@ -52,3 +52,5 @@ Most recent Extra curricular Activities & Achievements
 • I value the statement that mistakes happen some times. This happens when we don't have access to correct data at the correct point in time. 
 
 • I dislike the fact that we forget what we don't use on a daily basis and have to put lot of effort to remember it again. 
+
+• I dislike the way in which everything in this world works but I am also ok with it
