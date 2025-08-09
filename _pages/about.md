@@ -45,9 +45,9 @@ Most recent Extra curricular Activities & Achievements
 
 • I am avid reader because according to me better decisions, analysis can be made with more data.
 
-• I value the statement that everything in this world has cause and effect and the cause and effect can be found. I don't value luck where events happen somehow without reasons 
+• I value the statement that everything in this world has cause and effect and the cause and effect can be found. I don't value the existence of luck where events happen somehow without reasons 
 
-• I consider myself one of the best out there and I have spent my time with the top 1% therefore I know what best looks like what it takes to get there
+• I consider myself one of the best out there and I have spent my time with the top 1% therefore I know what best looks like and what it takes to get there
 
 • I value the statement that mistakes happen some times. This happens when we don't have access to correct data at the correct point in time. 
 
