@@ -42,7 +42,7 @@ Most recent Extra curricular Activities & Achievements
 
 
 • High achiever, analytical & internally motivated personality. 
-• I am avid reader because according to me better decisions, analysis can be made with more data/information.
+• I am avid reader because according to me better decisions, analysis can be made with more data.
 • I value the statement that everything in this world has cause and effect and the cause and effect can be found. I don't value luck where events happen somehow without reasons
 
 
