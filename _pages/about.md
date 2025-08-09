@@ -54,3 +54,5 @@ Most recent Extra curricular Activities & Achievements
 • I dislike the fact that we forget what we don't use on a daily basis and have to put lot of effort to remember it again. 
 
 • I don't value the statement that everything in limited amount is ok. This is not true. 
+
+• I don't value the statement that we learn the most by interacting with the world or practicals. This is not true.
