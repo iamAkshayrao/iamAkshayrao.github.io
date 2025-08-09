@@ -54,3 +54,5 @@ Most recent Extra curricular Activities & Achievements
 • I dislike the fact that we forget what we don't use on a daily basis and have to put lot of effort to remember it again. 
 
 • I dislike the way in which everything in this world works but I am also ok with it
+
+• I don't value the statement that everything in limited amount is ok. This is not true. 
