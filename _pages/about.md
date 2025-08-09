@@ -14,9 +14,7 @@ redirect_from:
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them. 
-
-High achiever, internally motivated personality.  Not your typical just want a job to live a life type guy.
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. I study other subjects through self study. I have exposure to most of them. 
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
@@ -41,3 +39,6 @@ Most recent Extra curricular Activities & Achievements
 
 • Trained in Abacus 🧮. Participant at National and State level competition 
 • Played Volleyball in high school at Zonal & Taluk level
+
+
+High achiever, internally motivated personality. I am avid reader because according to me better decisions, analysis can be made with more data/information. I value the statement that everything in this world has cause and effect. 
