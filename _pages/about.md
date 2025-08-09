@@ -16,7 +16,7 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. Avid reader. I study other subjects through self study. I have exposure to most of them. 
 
-High achiever, internally motivated personality.  I have exposure to almost everything in this world
+High achiever, internally motivated personality.  Not your typical just want a job to live a life type guy.
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
