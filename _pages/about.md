@@ -41,7 +41,7 @@ Most recent Extra curricular Activities & Achievements
 • Played Volleyball in high school at Zonal & Taluk level
 
 --------------------------------------------------------------------
-• High achiever, analytical & internally motivated personality. I do agree that past performance is not indicator of future performance but in my case I am just getting started!
+• High achiever, analytical & internally motivated personality. 
 
 • I am avid reader because according to me better decisions, analysis can be made with more data.
 
