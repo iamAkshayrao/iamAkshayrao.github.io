@@ -41,20 +41,3 @@ Most recent Extra curricular Activities & Achievements
 • Played Volleyball in high school at Zonal & Taluk level
 
 --------------------------------------------------------------------
-• High achiever, analytical & internally motivated personality. 
-
-• I am avid reader because according to me better decisions, analysis can be made with more data.
-
-• I value the statement that everything in this world has cause and effect and the cause and effect can be found. I don't value the existence of luck where events happen somehow without reasons 
-
-• I consider myself one of the best out there and I have spent my time with the top 1% therefore I know what best looks like and what it takes to get there
-
-• I value the statement that mistakes happen some times. This happens when we don't have access to correct data at the correct point in time. 
-
-• I dislike the fact that we forget what we don't use on a daily basis and have to put lot of effort to remember it again. 
-
-• I don't value the statement that everything in limited amount is ok. This is not true. 
-
-• I don't value the statement that we learn the most by interacting with the world or practicals. This is not true in all contexts
-
-
