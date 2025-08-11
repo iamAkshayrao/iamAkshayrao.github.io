@@ -55,6 +55,6 @@ Most recent Extra curricular Activities & Achievements
 
 • I don't value the statement that everything in limited amount is ok. This is not true. 
 
-• I don't value the statement that we learn the most by interacting with the world or practicals. This is not true.
+• I don't value the statement that we learn the most by interacting with the world or practicals. This is not true in all contexts
 
 
