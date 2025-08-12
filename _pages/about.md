@@ -37,7 +37,12 @@ Most recent Co-curricular & Scholastic Achievements
 ---------------------------------------------------------------------
 Most recent Extra curricular Activities & Achievements 
 
-• Trained in Abacus 🧮. Participant at National and State level competition 
+• Trained in Abacus 🧮. I was trained for years in this. Participant at National and State level competition 
 • Played Volleyball in high school at Zonal & Taluk level
+
+• Apart from these I played following sports Kho-Kho, Kabbadi, Throw ball, Cricket. 
+• I was active in mobile, web based and desktop games aswell such as Clash of Clans, Clash Royale, Far Cry, Call of Duty, Need for Speed, FIFA, PUB-G. I like Strategy and Battle Royale genre.
+• When I was in school, I had interests in creative arts as well and participated in dance, drama, craft related events
+
 
 --------------------------------------------------------------------
