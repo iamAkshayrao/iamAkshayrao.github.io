@@ -16,6 +16,8 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. I study other subjects through self study. I have exposure to most of them. 
 
+I consider myself highly knowledgeable and doesn't care how you think about me but I am open for inputs.
+
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
