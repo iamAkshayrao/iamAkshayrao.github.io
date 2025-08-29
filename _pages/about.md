@@ -14,7 +14,7 @@ redirect_from:
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. I study other subjects through self study. I have exposure to most of them. 
+•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. This combination makes me some of the few people on this planet who have studied all domains of science. I study other subjects through self study. I have exposure to most of them. 
 
 I consider myself highly knowledgeable and doesn't care how you think about me but I am open for inputs.
 
