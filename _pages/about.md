@@ -43,4 +43,3 @@ Most recent Extra curricular Activities & Achievements
 
 
 --------------------------------------------------------------------
-Apart from these, I have traveled to majority of the significant places in the southern part of India. I have played following sports: Kabbadi, kho-kho, throw ball, Cricket, badminton. I have played mobile and PC games. My preferences are strategy and Battle Royale. Clash of Clans, Clash Royale, FIFA, PUB-G
