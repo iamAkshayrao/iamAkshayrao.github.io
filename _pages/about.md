@@ -8,7 +8,7 @@ redirect_from:
   - /about.html
 ---
 
-• Currently Full Stack Software Engineer with 3 years in the telecom domain building B2B SaaS/CPaaS products. I have exposure to all tech stack, domains, roles in Computer Science & Electronics Industry. I am agnostic of tech stack etc.
+• Currently Full Stack Software Engineer with 3 years in the telecom domain building B2B SaaS/CPaaS products. I have exposure to everything in Computer Science & Electronics Industry. I am agnostic of tech stack etc.
 
 • Prior to that,  I persued B.E in Electronics and Communication Engineering from B.M.S College of Engineering(BMSCE), an autonomous institute affiliated to Visvesvaraya Technological University(VTU), India and graduated in 2021. BMSCE is one of the top 100 institute in the country where high achievers in school end up in.
 
