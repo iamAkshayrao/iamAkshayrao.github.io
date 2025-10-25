@@ -16,6 +16,8 @@ redirect_from:
 
 •Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. 
 
+"People grow old not necessarily wiser"
+
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
 
