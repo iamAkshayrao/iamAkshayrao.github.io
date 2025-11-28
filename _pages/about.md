@@ -14,9 +14,9 @@ redirect_from:
 
 • During my time here, I have exposure to & worked on perception, prediction & control problems related to self-balancing bot, self-driving vehicle, quadcopter, humanoid robot, swarm robotics. 
 
-•Formal Education: Math, Physical and Biological Sciences, Electronics and Communication Engineering. 
+•Formal Education: Math, Physical & Biological Sciences(Pre-University level), Electronics and Communication Engineering (Undergraduate level)
 
-"People grow old not necessarily wiser"
+I don't resrtict myself to formal education. I explore other academic disciplines independently. "People grow old not necessarily wiser"
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
@@ -39,7 +39,7 @@ Most recent Co-curricular & Scholastic Achievements
 ---------------------------------------------------------------------
 Most recent Extra curricular Activities & Achievements 
 
-• Trained in Abacus 🧮. I was trained for years in this. Participant at National and State level competition 
+• Trained in Abacus 🧮. Participant at National and State level competition 
 
 • Played Volleyball in high school at Zonal & Taluk level
 
