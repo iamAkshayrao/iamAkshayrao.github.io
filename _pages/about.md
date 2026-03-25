@@ -51,7 +51,6 @@ Most recent Extra curricular Activities & Achievements
 
 • Arts: I like playing musical instruments. In school I played side drum. I was active particpant in all of the creative arts that existed in my school. I didnt continue it later. Trying to restart my painting journey again and involve myself with some musical instrument.
 
-• In general I picked something in these domains and pushed my limits in it over time.
 
 
 
