@@ -41,7 +41,7 @@ Most recent Extra curricular Activities & Achievements
 
 • Trained in Abacus 🧮. Participant at National and State level competition 
 
-• Sports: Played Volleyball in high school at Zonal & Taluk level. Apart from this I have involved myself in cricket, chess, badminton, all the sports activites that was being conducted by my school inside the city's stadium once in a year
+• Sports: Played Volleyball in high school at Zonal & Taluk level. Apart from this I have involved myself in cricket, chess, badminton, all the sports activites that was being conducted by my school inside the city's stadium once in a year. My school even conducted marathons, I used to particpate in it. 
 
 • Gaming: I also used to play computer, mobile & console games such as Far Cry, Call of Duty, FIFA, Cricket, Clash of clans, clash royale, PUBG. I like battle royale & strategy games
 
