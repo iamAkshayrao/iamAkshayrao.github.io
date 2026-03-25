@@ -16,7 +16,9 @@ redirect_from:
 
 •Formal Education: Math, Physical & Biological Sciences(Pre-University level), Electronics and Communication Engineering (Undergraduate level)
 
-I don't resrtict myself to formal education. I explore other academic disciplines. "People grow old not necessarily wiser"
+I don't resrtict myself to formal education. I explore other academic disciplines. 
+
+"People grow old not necessarily wiser"
 
 ---------------------------------------------------------------------
 Most recent Co-curricular & Scholastic Achievements 
